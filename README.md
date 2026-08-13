@@ -31,12 +31,14 @@
 <div style="display: inline-block; transform: rotate(-90deg); transform-origin: top left; white-space: nowrap; font-family: sans-serif; font-size: 18px; line-height: 2;">
   LOVE LIST<br>
   (Порядок не имеет значения)<br>
-  Kuy ଘ(੭ˊᵕˋ)੭* ੈ✩‧˚<br>
-  Wyed ⸜(｡˃ ᵕ ˂ )⸝♡<br>
-  Munya ˶ᵔ ᵕ ᵔ˶<br>
-  Elias ◜ω◝<br>
+  Kuy ੈ✩‧˚<br>
+  Wyed ♡⑅ॱ⸝♡<br>
+  Munya ˖°.𓆩♡𓆪 .°˖<br>
+  Elias˚₊·—̳͟͞͞♡<br>
   люблю вас и ценю муа!˗ˏˋ ꒰ ♡ ꒱ ˎˊ
 </div>
+
+![GIF](https://i.pinimg.com/originals/cb/f1/7c/cbf17c7dd6f1f28c99b40eef4e95e37a.gif) 
 <br><br><br><br> <!-- Отступ, чтобы текст не наезжал на следующий контент -->   
 
 
