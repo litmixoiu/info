@@ -22,10 +22,24 @@
   
   если мне будет с вами очень очень очень комфортно то я буду очень кринжово себя вести так что не пугайтесь 
 <img src="https://i.pinimg.com/736x/72/fa/67/72fa67978b992792781991455b101a56.jpg" alt="Описание" width="300">
+ 
+ <br><br><br><br> <!-- Отступ, чтобы текст не наезжал на следующий контент -->  
 
-любимые исполнители 
+ ![GIF](https://i.pinimg.com/originals/9c/18/12/9c18129e8449737c6ab013567cddaac0.gif) 
 
-emoslut666,animegirl88,femtanyl,STOMACH BOOK (ОБОЖАЮ ЕЕ) ,akkiemi,SHUGAR ТВАРЬ вот так вот
+            
+<div style="display: inline-block; transform: rotate(-90deg); transform-origin: top left; white-space: nowrap; font-family: sans-serif; font-size: 18px; line-height: 2;">
+  LOVE LIST<br>
+  (Порядок не имеет значения)<br>
+  Kuy ଘ(੭ˊᵕˋ)੭* ੈ✩‧˚<br>
+  Wyed ⸜(｡˃ ᵕ ˂ )⸝♡<br>
+  Munya ˶ᵔ ᵕ ᵔ˶<br>
+  Elias ◜ω◝<br>
+  люблю вас и ценю муа!˗ˏˋ ꒰ ♡ ꒱ ˎˊ
+</div>
+<br><br><br><br> <!-- Отступ, чтобы текст не наезжал на следующий контент -->   
+
+
 
 ![GIF](https://i.pinimg.com/736x/1e/74/c5/1e74c539d9dd4224824887ae73300f90.jpg)
 НА ЭТОМ ВСЁ! ૮꒰ ˶• ༝ •˶꒱ა ♡
